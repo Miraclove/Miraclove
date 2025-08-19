@@ -2,7 +2,7 @@
 
 **Software Developer & Machine Learning Engineer — building high‑efficiency AI applications**
 
-[Website](https://pengwz.info) · [GitHub](https://github.com/Miraclove) · [LinkedIn](https://www.linkedin.com/in/weizhi-peng-uk/) · Email: jimpeng98 \[at] gmail.com · Ontario, Canada
+[Website](https://pengwz.info) · [GitHub](https://github.com/Miraclove) · [LinkedIn](https://www.linkedin.com/in/weizhi-peng-uk/) · Email: jimpeng98@gmail.com · Ontario, Canada
 
 ---
 
